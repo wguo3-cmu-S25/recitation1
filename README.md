@@ -1,1 +1,1 @@
-Five Guys is the best burger.
+in-n-out has the best burgers!
